@@ -56,7 +56,7 @@ The dataset, complete thesis report, and unpublished IEEE research paper are not
 
 The complete thesis and associated IEEE research paper are currently unpublished and are available upon request.
 
-For access to the research reports, please contact me at **[your email address]**.
+For access to the research reports, please contact me at **moumitah2007@gmail.com**.
 
 ## Disclaimer
 
